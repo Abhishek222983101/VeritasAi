@@ -8,7 +8,7 @@
 
 ## Demo
 
-https://drive.google.com/drive/folders/1qLtpqHqsoTDBmSlPD9heXROTSalblbzD?usp=sharing
+https://drive.google.com/file/d/1WtZyFj16KJ3Vi5blMmaxOYWzAONZ4g6a/view?usp=drive_link
 
 ## Overview
 
